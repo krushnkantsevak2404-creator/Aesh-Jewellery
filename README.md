@@ -2,7 +2,7 @@
 
 > **Modern Indian Jewellery & Festive Fashion Accessories**  
 > Founded by **Kishan & Aesha** • Ahmedabad, Gujarat, India  
-> Official Instagram: [@sevakcreation](https://instagram.com/sevakcreation) • Target Market: India (₹ INR)
+> Official Instagram: [@sevakcreation](https://www.instagram.com/sevak.creation?xtok=MXR5cWtkZHBjc3ptOQ==) • Target Market: India (₹ INR)
 
 ---
 
